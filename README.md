@@ -1,3 +1,3 @@
 ### Hello 🐣
 
-<img src="https://media.giphy.com/media/hnNyVPIXgLdle/giphy.gif">
+<img src="https://media.giphy.com/media/eBgWizk5dmZRS/giphy.gif">
